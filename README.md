@@ -1,9 +1,10 @@
- # Baler Kontho
-![Shawon](127.jpg)
+# How to pass a drug test?
+To pass a urine test,you need to drink a lot of water before the drug test. After that you will urinate frequently and that will flush out the marijuana metabolites from the bladder. This will lower the concentration of marijuana metabolites in the urine below the detectable level. There's no exact amount of water required to drink because it depends on a person's body mass and metabolism. But in most cases 2-3 liters will be diluteenough to pass a drug test.
+**How to drink it safely?** The kidneys can not excrete more than 0.8 to 1.0 liters per hour. So the safe amount os to consume 0.8 liters per hour and start 3-4 hours before the drug test. Drinking this much water will lower creatinine levels and the specific gravity of the urine. It will also change the color of the urine. If therse parameters are out of normal range the sample will be rejected as diluted. That's why you have to use suppliements.
 
+**10 grams of creatine ethynl supplement,
+200 grams of Vitamin B &
+Electrolyte Solution**
 
-Student league leader **Shawon Ahmed** got arrested with sex workers
-Alligation had been stumped that he makes he cheats with teenage girls in the name of marriage.His best friend **Nasir Hossain** has also been blessed with different allegations. DMP has announced that they are going to arrest this corrupt leader.
-The girls who had suffered from his dangerous sex worker trading is Maisha Zaman Tasneem(Age:18),Vendi Zaman Sabrina(Age:15)
-and **Ferdousi(Age:25)
-**Ferdousi** told the newspaper ***Baaler Kontho*** That  Shawon Ahmed came to college in the afternoon of 7h July when the college was about to close, he came and his teacher was **Nahid** was also there. Shawon told Ferdosui that he is the freind of **Navid Farhan** So, I can change you in one night. But you have to follow my orders now. And then they told her to have sex wth them
+### All should be taken 3 hours before drug test.
+
