@@ -21,6 +21,23 @@ Some of the best criminals don't get away with their crimes becasue they are so 
 
 
 # Getting away with fingerprints
-Well in this method you could get away but only temporarily but that kind of situation could really arise. But Its gonna grow in some days and its going to be actually the same print as it was before and it always will be. Trying those methods are going to be toruble for your ownself, beacuse you might not want the situation when your pressing the sensor of your phone and its not getting unlocked or touching the sensor on your office door and that's not recognizing you as well.
+Well in this method you could get away but only temporarily but that kind of situation could really arise. But Its gonna grow in some days and its going to be actually the same print as it was before and it always will be. Trying those methods are going to be toruble for your ownself, beacuse you might not want the situation when your pressing the sensor of your phone and its not getting unlocked or touching the sensor on your office door and that's not recognizing you as well. It also happens permanently infact it had already happend to some peoples due to accidnets like burning.
+
+
+
+# Things that I like:
+
+1)Record collection.(Fav artists: John Mayer,Aerosmith,Santana,Pink Floyd,Natalie Imbruglia,Jenifer Paige,Weekend,Blue Oyster Cult,James Blunt,Eric Clapton Dire Starits)
+
+2) Sitting at the study room of 5th floor at my campus with its windows open.
+
+3)Favourite tag teams: Hardy Boys
+
+4)Memorable wwe paper view (Survivor Series 2001)
+
+5)Favourite Big hair guys:(Chris Jericho in 2000s,HHH in 1998,Axl Rose,Barry Gib in"stayin alive", Jon Bon Jovi in the song "Always" James Hetfield in early days) 
+
+
+
 
 
