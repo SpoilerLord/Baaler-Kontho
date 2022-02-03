@@ -8,7 +8,7 @@ To pass a urine test,you need to drink a lot of water before the drug test. Afte
 Electrolyte Solution**
 
 ### All should be taken 3 hours before drug test.
-
+![p](po.jpg)
 # How to pass a Lie detector test?
 
 Some of the best criminals don't get away with their crimes becasue they are so smart in not getting caught.Becasue they are able to conveince people that they are totally innocent. Even if they are suspect.CIA double agent Robert Hannsen was able to beat lie detector 4 times. Well recently a NSA agent has revaled the way to beat lie detector.All of this tips are real and really work:
@@ -18,3 +18,9 @@ Some of the best criminals don't get away with their crimes becasue they are so 
 **Stop answering things elaborately because they are going to push you by making you comfortable by, first asking normally and then suddenly ask you the main question. Never get friendly with them.**
 
 **Keep your mind out of the world, because most of the examiners are going to manipulate you by saying that the detector is  giving negative results even if they are not only to make you afraid.**
+
+
+# Getting away with fingerprints
+Well in this method you could get away but only temporarily but that kind of situation could really arise. But Its gonna grow in some days and its going to be actually the same print as it was before and it always will be. Trying those methods are going to be toruble for your ownself, beacuse you might not want the situation when your pressing the sensor of your phone and its not getting unlocked or touching the sensor on your office door and that's not recognizing you as well.
+
+
