@@ -9,3 +9,12 @@ Electrolyte Solution**
 
 ### All should be taken 3 hours before drug test.
 
+# How to pass a Lie detector test?
+
+Some of the best criminals don't get away with their crimes becasue they are so smart in not getting caught.Becasue they are able to conveince people that they are totally innocent. Even if they are suspect.CIA double agent Robert Hannsen was able to beat lie detector 4 times. Well recently a NSA agent has revaled the way to beat lie detector.All of this tips are real and really work:
+
+**At the beggining they are going to ask some silly questions before asking the main one, you have to act nervous there willingly, so the guys who are sitting infront of you doesn't understands that you've took preparations to beat the detecting machine.(e.g bite your tounge or do some complex maths in your math to make sure that the detector is thinking you are in stress)**
+
+**Stop answering things elaborately because they are going to push you by making you comfortable by, first asking normally and then suddenly ask you the main question. Never get friendly with them.**
+
+**Keep your mind out of the world, because most of the examiners are going to manipulate you by saying that the detector is  giving negative results even if they are not only to make you afraid.**
