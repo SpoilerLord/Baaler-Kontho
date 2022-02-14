@@ -27,11 +27,11 @@ Well in this method you could get away but only temporarily but that kind of sit
 
 # Things that I like:
 
-1)Record collection.(Fav artists: John Mayer,Aerosmith,Santana,Pink Floyd,Natalie Imbruglia,Jenifer Paige,Weekend,Blue Oyster Cult,James Blunt,Eric Clapton Dire Starits)
+1)Record collection.(Fav artists: John Mayer,Aerosmith,Santana,Pink Floyd,Natalie Imbruglia,Oasis Jenifer Paige,Weekend,Blue Oyster Cult,James Blunt,Eric Clapton,Dire Starits etc.)
 
 2) Sitting at the study room of 5th floor at my campus with its windows open.
 
-3)Favourite tag teams: Hardy Boys
+3)Favourite tag teams: Hardy Boyz
 
 4)Memorable wwe paper view (Survivor Series 2001)
 
